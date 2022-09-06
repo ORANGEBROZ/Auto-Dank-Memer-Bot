@@ -1,2 +1,2 @@
 # Auto-Dank-Memer-Bot
-JUST DOWNLOAD IT
+Details: comepleatly auto, not bannable, can set hotkey
